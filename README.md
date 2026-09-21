@@ -7,4 +7,4 @@
 
 ### 🌐 Connect with me:
 
-[<img src="https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white" />](https://linkedin.com/in/YOUR_LINKEDIN)
+[<img src="https://vi.wikipedia.org/wiki/T%E1%BA%ADp_tin:Facebook-icon-1.png" />](https://www.facebook.com/cryolilz.39)
