@@ -1,6 +1,6 @@
-# Hi there, I'm [Phu Huyhn] 👋
+# Hi there, I'm Phu Huyhn 👋
 
-- 🎓 I'm currently studying at **[UIT - University of Information Technology]**
+- 🎓 I'm currently studying at **UIT - University of Information Technology**
 - 📫 Contact me: **adnphu1901@gmail.com**
 
 ---
