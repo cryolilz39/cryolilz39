@@ -7,4 +7,4 @@
 
 ### 🌐 Connect with me:
 
-[<img src="https://commons.wikimedia.org/wiki/File:Facebook_F_icon.svg" />](https://www.facebook.com/cryolilz.39)
+[<img src="https://upload.wikimedia.org/wikipedia/commons/1/16/Facebook-icon-1.png?utm_source=vi.wikipedia.org&utm_campaign=index&utm_content=original" />](https://www.facebook.com/cryolilz.39)
